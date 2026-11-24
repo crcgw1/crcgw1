@@ -1,6 +1,6 @@
-🔥 成人吃瓜网官方最新地址 & 导航页 | crcgw Official Access Page  
+🔥 成人吃瓜网官方最新地址 & 导航页 | Crcgw Official Access Page  
 本 GitHub 页面用于发布 成人吃瓜网 最新可用入口、App 下载地址、官方社群与资源频道**。  
-This GitHub profile is maintained to publish the latest working links, official app download, and verified community channels for Mdgw
+This GitHub profile is maintained to publish the latest working links, official app download, and verified community channels for Crcgw
 
 👉 建议收藏 / Bookmark this page to avoid losing access
 
