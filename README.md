@@ -1,4 +1,4 @@
-🔥 麻豆瓜网官方最新地址 & 导航页 | Mdgw Official Access Page  
+🔥 成人吃瓜网官方最新地址 & 导航页 | Mdgw Official Access Page  
 本 GitHub 页面用于发布 麻豆瓜网 最新可用入口、App 下载地址、官方社群与资源频道**。  
 This GitHub profile is maintained to publish the latest working links, official app download, and verified community channels for Mdgw
 
@@ -7,13 +7,13 @@ This GitHub profile is maintained to publish the latest working links, official 
 ---
 
 ## 🌐 最新访问入口 | Latest Website Access
-- https://mdgw28.com
+- https://crcgw1.com
 ### ✅ 免翻墙入口 | No VPN Required
-- https://mdgw28.com
+- https://crcgw1.com
 
 ### 🌍 永久入口（需翻墙） | Permanent Access (VPN Required)
-- https://mdgw.com
-- https://mdgw2.com
+- https://crcgw.com
+- https://crcg66.com
 
 ---
 
@@ -39,17 +39,17 @@ This GitHub profile is maintained to publish the latest working links, official 
 ## 📢 官方社交媒体 | Official Social Media
 
 - 官方 Twitter (X)：  
-  https://x.com/mdgw010
+  https://x.com/crcgw01
 
 - 官方 Telegram 频道：  
-  https://telegram.me/madouguawang
+  https://telegram.me/chengrenchiguawang01
 
 ---
 
 ## 📦 Telegram 社群 | Telegram Community
 
 - 官方 TG 活跃交流群 | Active Community Group  
-  https://telegram.me/madouguawang01
+  https://telegram.me/chengrenchiguawang01
 
 ---
 
